@@ -100,6 +100,12 @@ You can install them using:
 🌎 Spread the word, and let's make QR codes even more accessible! 🚀
 
 
+## 👥 Connect With Me:
+
+**Yashas D** [Connect on LinkedIn](https://www.linkedin.com/in/yashasd2004/)
+Feel free to reach out for any questions or collaboration opportunities!
+
+
 
 🚀 **Ready to generate and scan QR codes like a pro? Let's get started!** 🎉
 
